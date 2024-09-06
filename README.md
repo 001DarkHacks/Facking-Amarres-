@@ -1,2 +1,2 @@
-# Facking-Amarres-
-La Libertad Es Mi Control Absoluto ☠️
+# Facking-Amarres 
+😴 LAS MENTES DEBILES SIEMPRE HACEN COALICIÓN EN CONTRA DEL QUE ES LIBRE Y DIFERENTE 🌩️
